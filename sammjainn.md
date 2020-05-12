@@ -1,3 +1,3 @@
 # Add one line about yourself
 
-Hi, I am Nikhil Tripathi
+Hi, I am Samriddhi Jain!
